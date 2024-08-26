@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @vijay
+- 👀 I’m interested in AWS Devops
+- 🌱 I’m currently learning Azure
+- 💞️ I’m looking to collaborate on Good organization 
+- 📫 How to reach me vijayjob287@gmail.com
+- 😄 Pronouns: He
+-
